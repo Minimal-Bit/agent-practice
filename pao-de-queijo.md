@@ -9,4 +9,4 @@
 
 1. Boil milk, water, and oil, then mix with flour.
 2. Let cool, add eggs and cheese, then knead.
-3. Roll into balls and bake at 200°C for 25 mins.
+3. Roll into balls and bake at 220°C for 25 mins.
